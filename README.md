@@ -18,5 +18,5 @@
 - This summer, I learned a lot of new things, but the greatest skill that I learned was **how to shuffle a deck of cards**. I always admired how cool it looked to swiftly reorganize the cards and I ended up asking my mom how to do it. She taught me how to shuffle them **in a single afternoon**, but also taught me how to add some flare for when I shuffle.
 
 ## Topic 5 - Creative Endeavors
-- This summer I needed to earn a new merit badge for boyscouts, which was my woodcarving badge. So I chose to carve a **wooden** ring,** I spent several hours meticulously carving a piece of wood to be small enough to fit on my finger. 
+- This summer I needed to earn a new merit badge for boyscouts, which was my woodcarving badge. So I chose to carve a **wooden ring**,I spent several hours meticulously carving a piece of wood to be small enough to fit on my finger. 
     - *It ended up very nice and I made a second one for a friend later.*
